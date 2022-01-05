@@ -1,4 +1,4 @@
-### Hi there, I'm Normal Agent - aka [AMB][website] 👋 
+### Hi there, I'm Normal Agent - aka [AMB] 👋 
 
 ## I'm a Developer!!
 
