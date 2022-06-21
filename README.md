@@ -1,4 +1,4 @@
-### Hi there, I'm Normal Agent - aka [AMB] 👋 
+### Hi there, I'm Normal Agent - aka [Sypher] 👋 
 
 ## I'm a Developer!!
 
